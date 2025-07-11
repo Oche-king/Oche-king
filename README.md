@@ -13,5 +13,6 @@ I'm a multi-disciplinary tech enthusiast with a passion for solving problems thr
 📫 Let's connect:
 
 LinkedIn: www.linkedin.com/in/caleb-igoche-882942227
+
 Email: Calebigoche7@gmail.com
 🧠 Motto: “Build it smart, scale it right, and learn continuously.”
